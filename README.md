@@ -2,10 +2,7 @@
 
 The food delivery apps grow and make it more attractive for time-starved consumers and generations millennial and Z. According to the food delivery market research of Allied Market Research, the market for delivery mobile apps to hit $16.6B in 2023. The food delivery market analysis shows us that it was valued at about $3.7B in 2017. The segment is predicted to grow the fastest at 28% by 2023. 
 
-
-
-
-
+https://user-images.githubusercontent.com/27310613/89149303-faac2480-d510-11ea-8949-255ec0090293.png
 
 
 
